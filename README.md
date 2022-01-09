@@ -1,3 +1,3 @@
 - Headphones
 - Concert Tickets
-- Plane Ticket Denver
+- Plane Ticket Denver, CO
